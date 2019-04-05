@@ -1,1 +1,1 @@
-# Verinskij438
+# laba_2_Verinskiy
